@@ -1,1 +1,1 @@
-# rsschool-cv
+https://bolatbeka.github.io/rsschool-cv/cv
